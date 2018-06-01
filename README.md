@@ -1,2 +1,5 @@
 # hello-world
-Entering the world of github and coding
+Hey carbon based lifeforms...
+You are heading down the path of destruction by abusing the environment and each other...
+Reform.. or perish!!
+Your friendly neighbouhood GOD!!
